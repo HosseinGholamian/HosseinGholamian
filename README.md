@@ -1,4 +1,4 @@
-### Hi there 👋, my nickname is mini mohandes
+### Hi there 👋, my name is Hossein Gholamian
 #### I'm a back-end web developer from IRAN ,Tehran
 
 
